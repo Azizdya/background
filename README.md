@@ -10,7 +10,7 @@
 
 ![alt text](https://github.com/Azizdya/background/blob/main/bg06.jpg?raw=true)
 
-![alt text](?raw=true)
+![alt text](https://github.com/Azizdya/background/blob/main/bg07.jpg?raw=true)
 
 ![alt text](?raw=true)
 
