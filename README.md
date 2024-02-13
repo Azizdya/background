@@ -14,7 +14,7 @@
 
 ![alt text](https://github.com/Azizdya/background/blob/main/bg07.jpg?raw=true)
 
-![alt text](https://github.com/Azizdya/background/blob/main/bg08.jpg?raw=true)
+![alt text](https://github.com/Azizdya/background/blob/main/bg8.jpg?raw=true)
 
 ![alt text](https://github.com/Azizdya/background/blob/main/bg09.jpg?raw=true)
 
